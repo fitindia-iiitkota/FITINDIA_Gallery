@@ -1,1 +1,1 @@
-# FITINDIA
+# FITINDIA Club's Gallery
